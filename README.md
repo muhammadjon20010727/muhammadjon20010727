@@ -11,6 +11,6 @@
 ---
 
 ### 🔗 Let's connect
-- 📬 [Telegram](https://t.me/SENIOR_oo17) &nbsp; 📸 [Instagram](https://instagram.com/muhammad_oo17) &nbsp; 💼 [LinkedIn](https://www.linkedin.com/in/muhammad-samatov-79448b401) &nbsp; 🌐 [Portfolio](https://portfolio1398.vercel.app/) &nbsp; 🧩 [Codewars](https://www.codewars.com/Unknown) 
+- 📬 [Telegram](https://t.me/SENIOR_oo17) &nbsp; 📸 [Instagram](https://instagram.com/muhammad_oo17) &nbsp; 💼 [LinkedIn](https://www.linkedin.com/in/muhammad-samatov-79448b401) &nbsp; 🌐 [Portfolio](https://portfolio1398.vercel.app/) &nbsp; 🧩 [Codewars](https://www.codewars.com/users/Muhammad2011/badges/large) 
 
 ---
